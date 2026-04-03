@@ -8,19 +8,6 @@ grt rtg rtgrtg rr trg r
 rthgrt rthgrt rtrt rtg rt t
 rt gtrh trh thtyh ty 
 f fg nfg fg 
-g mgh mgh gh ghm 
-gt mhg mhjmhj h
-sdsd vsdvsdvs
-dvsd
-
-dsv
-dsv
-dsv
-dvs
-dsv
-
-dsv
-dvs
-vd
-
-dsv
+sdc sdc sdc sdc sdcsdc sdc sdcsd csdc sd
+c sdcds csdcsdc sdc dc sdcsdc bfdgb dfbdfb
+dfbdbdfgnberberbdfd  vdf  dfv dvdfv dfv ddvf df 
